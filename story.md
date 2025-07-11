@@ -1,1 +1,1 @@
-One bright sunny morning my Grandfather was sitting by the kitchen window, drinkikng coffee, when suddenly...he saw a dragon ran across a yard! grandfather ran to the door, swing it open, and sure enough! there sat a drag
+One bright sunny morning my Grandfather was sitting by the kitchen window, drinking coffee, when suddenly...he saw a dragon ran across a yard! grandfather ran to the door, swing it open, and sure enough! there sat a drag
